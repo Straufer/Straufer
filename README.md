@@ -1,5 +1,5 @@
-## Alt Acc
+## ik 
 
-Akun sudah pindah ke [Sini](https://github.com/asfung)
+He's [Here](https://github.com/asfung)
 
 
